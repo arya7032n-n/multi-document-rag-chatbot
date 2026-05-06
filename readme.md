@@ -176,7 +176,7 @@ Aryan Chaudhary
 
 AI/ML Developer | Python Enthusiast | AI Systems Builder
 
-GitHub: https://github.com/yourusername
+GitHub: https://github.com/arya7032n-n
 
 ---
 
